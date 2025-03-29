@@ -1,0 +1,3 @@
+So hello Neoarch is Arch linux but Mini in python!! also its made in arch btw
+Next well once it fully drop Neoarch wich is almost out of develop ment also IM doing this right this time the first time with Cozmo AI i was all over also you can tell i say also alot also it's something you can mess around with for free it's cool to!!!
+I use Arch btw also debian and arch are supported i use arch and debian so yeah also if you want you can use a .sh i made my self to install it and dont worry it goes through 3 hour testing ps it just me testing it while doing other thing to like play games like GTA 5 and minecraft with shaders and fortnite COD and others it works so yeah.
